@@ -1,0 +1,1 @@
+# klasik-rastgele-ve-kuantum-rastgele-y-r-y-
